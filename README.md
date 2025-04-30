@@ -1,0 +1,1 @@
+# Artificial-Intelligence-AI-generated_model_red_toy_car.obj-
